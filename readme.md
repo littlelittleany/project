@@ -1,1 +1,1 @@
-https://littlelittleany.github.io/project/.
+https://littlelittleany.github.io/project/
